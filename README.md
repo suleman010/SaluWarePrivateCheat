@@ -1,1 +1,2 @@
 # SaluWarePrivateCheat
+Only For MajuWale
